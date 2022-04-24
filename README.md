@@ -1,4 +1,1 @@
 # LearningProgrammingIsSoHardFuckkk
-
-
-hello ben
